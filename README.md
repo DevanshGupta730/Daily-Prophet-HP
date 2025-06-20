@@ -1,1 +1,1 @@
-# Daily-Prophet-HP
+# Daily-Prophet-Harry Potter
